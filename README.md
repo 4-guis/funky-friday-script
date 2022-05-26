@@ -1,0 +1,1 @@
+# funky-friday-script
